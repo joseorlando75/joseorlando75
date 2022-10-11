@@ -1,4 +1,4 @@
-## Professor José Orlando
+## Sobre Mim
 
 - 👋 Eu sou Professor José Orlando.
 - 👀 Trabalho na área de Matemática.
